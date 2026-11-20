@@ -13,7 +13,7 @@ I am introverted and adventurous. My hobbies are playing sports, online games an
 
 <br>
 
-*PS. If anyone wants to duel me in minecraft, my tlauncher ign is S0lus_tenbris and I mostly main SpearMace*
+*PS. If anyone wants to duel me in minecraft, my tlauncher ign is S0lus_tenebris and I mostly main SpearMace*
 
 <br>
 
