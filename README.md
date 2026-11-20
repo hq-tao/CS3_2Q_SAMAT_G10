@@ -6,3 +6,6 @@
 I am introverted and adventurous. My hobbies are playing sports, online games and musical instruments such as the Piano.
 
 # Joaquin Ethan Arellano (username)
+**I am a person and I am alive. That is all, thank you**
+*PS. If anyone wants to duel me in minecraft, my tlauncher ign is S0lus_tenbris and I mostly main SpearMace*
+*I can also tnt cart*
